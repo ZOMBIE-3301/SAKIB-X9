@@ -1,6 +1,6 @@
 # SAKIB-X9
-Free Tool ✌️ 
-This Is A Guft From Mr.Qureshi 🎉
+Free Tool ✌️
+This Is A Gift From Mr.Qureshi 🎉
 Thanks Qureshi Bhai 💗
 
 হোয়াটসঅ্যাপ গ্রুপে key দাও আমি এপ্রুভ করে দিবো ☠️
