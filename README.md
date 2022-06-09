@@ -16,7 +16,7 @@ git clone https://github.com/devil-sakib/SAKIB-X9
 
 cd SAKIB-X9
 
-python joker_tqai.py
+python xnx.py
 
 
 🐒 ENJOY FREE TOOL 🐒
